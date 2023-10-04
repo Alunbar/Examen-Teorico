@@ -48,8 +48,22 @@ Mis primeros juegos fueron sobretodo juegos de estrategia en tiempo real que mi 
   + [DOFUS](https://www.dofus.com/es/prehome)
   + [Ikariam](https://gameforge.com/es-ES/play/ikariam/)
   + [Line Rider](https://www.linerider.com/)
-    
+
++ #### Mis videojuegos más recientes:
+     + Cyberpunk 2077
+     + ^[Paradox](https://www.paradoxinteractive.com/our-games/discover). Soy un fanático de los juegos de estrategia desde pequeño y Paradox para mi ha supuesto un antes y un después. Gracias a ellos he disfrutado de juegos como: Crusaders Kings III, Stellaris, Hearts of Iron IV, Cities Skylines, Age of Wonders III y IV.
+     + Project Zomboid
+     + RimWorld
+     + Baldur's Gate 3
+     + Valorant (acabo de empezar a jugar tras años sin tocar un juego de Riot, me he fallado a mi mismo).
+ 
+  En definitiva, de mi tiempo libre, jugar a videojuegos es lo que más ocupa ya que es algo que me gusta desde pequeño, comparto con casi todos mis amigos y mi pareja por lo que a la vez que juego suelo estar socializando con ellos o jugando con ellos.
+      
 - ### Música.
-  ¿Quién podría vivir sin música? 
+   ¿Quién podría vivir sin música? 
 
+Me encanta la música, aunque he intentado en diferentes ocasiones diferentes instrumentos, jamás le dediqué el tiempo suficiente para aprender a tocar medianamente bien. Por lo que se puede decir que me gusta más escuchar la música que crearla. También he de decir que soy un aficionado a la mesa de mezclas, cuando en mi grupo de amigos montamos una fiesta privada suelo traer mi equipo para pinchar de DJ. En principio no me cierro a ningún tipo de música y suelo encontrar atractivo en cierta manera a cada género músical. Aquí mis géneros favoritos con algunos ejemplos:
 
+- Electrónica: [Drum & Bass](https://www.youtube.com/watch?v=btefjNXeaYg), [Hard-techno](https://youtu.be/kJtr_SqGerM?si=7GS-1xh-1Q7MlflC), [Hardcore](https://www.youtube.com/watch?v=2NifU4IPVSw), [Breakbeat](https://www.youtube.com/watch?v=zuoqBcXhsVU), [Makineta](https://www.youtube.com/watch?v=nzlx8DjL8qE), [Hardbass](https://www.youtube.com/watch?v=RBfrfSNX6ts).
+- Post-Punk [Ruso/Bieloruso](https://www.youtube.com/watch?v=HR5zpFs7YpY), [En español versionando reggaeton](https://youtu.be/owp7QP19cjI?si=DEar83Ayqr3P04qK).
+- 
