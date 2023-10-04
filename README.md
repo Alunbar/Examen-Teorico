@@ -5,6 +5,9 @@
 
 ![Mi perrita Happy](https://i.imgur.com/Iu1kT3Q.jpg)
 
+
+- Cita célebre favorita: 
+
 ---
 
 ## Formación anterior:
