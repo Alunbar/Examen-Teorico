@@ -6,7 +6,7 @@
 ![Mi perrita Happy](https://i.imgur.com/Iu1kT3Q.jpg)
 
 
-- Cita célebre favorita: 
+- Cita favorita:  _No tienes enemigos, nadie los tiene, ninguna persona merece que le hagan daño._
 
 ---
 
@@ -49,4 +49,5 @@ Mis primeros juegos fueron sobretodo juegos de estrategia en tiempo real que mi 
   + [Ikariam](https://gameforge.com/es-ES/play/ikariam/)
   + [Line Rider](https://www.linerider.com/)
 
+### Música.
   ¿Quién podría vivir sin música? 
