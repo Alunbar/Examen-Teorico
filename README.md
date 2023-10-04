@@ -31,7 +31,7 @@ Estoy interesado en aprender todo lo posible relacionado con la administración 
 
 ## Mis hobbies y pasiones:
 + ### Mi gran pasión: Los videojuegos.
-Cuando era muy pequeño, uno de mis primeros recuerdos son de ver a mi padre jugando videojuegos mientras y lo observaba maravillado sentado en su regazo. En aquella época, a principios de los 2000 mi padre tenía un ordenador en su oficina y a menudo lo usaba para jugar. Aunque mi padre no se dedica a la informática (es psicólogo clínico), estaba bastante interesado en los videojuegos y la informática. Ese interés llegó a mi y posteriormente a mi hermano pequeño. Recuerdo que con 6 años, cuando apenas sabía leer, instalé mi primer juego en el ordenador de mi padre sin su supervisión. Fue tan fácil cómo introducir el CD-ROM, el programa de instalación se ejecutaba automáticamente y yo sólo tuve que darle a continuar hasta que acabase. Fue un juego (posiblemente de publicidad) sobre una bolera de la película Monstruos S.A.
+Cuando era muy pequeño, uno de mis primeros recuerdos son de ver a mi padre jugando videojuegos mientras y lo observaba maravillado sentado en su regazo. En aquella época, a principios de los 2000 mi padre tenía un ordenador en su oficina y a menudo lo usaba para jugar. Aunque mi padre no se dedica a la informática (es psicólogo clínico), estaba bastante interesado en los videojuegos y la informática. Ese interés llegó a mi y posteriormente a mi hermano pequeño. Recuerdo que con 6 años, cuando apenas sabía leer, instalé mi primer juego en el ordenador de mi padre ~~sin su supervisión~~ mientras mi madre miraba. Fue tan fácil cómo introducir el CD-ROM, el programa de instalación se ejecutaba automáticamente y yo sólo tuve que darle a continuar hasta que acabase. Fue un juego (posiblemente de publicidad) sobre una bolera de la película Monstruos S.A.
 
 Mis primeros juegos fueron sobretodo juegos de estrategia en tiempo real que mi padre jugaba o tenía en posesión.
 
@@ -51,3 +51,5 @@ Mis primeros juegos fueron sobretodo juegos de estrategia en tiempo real que mi 
     
 - ### Música.
   ¿Quién podría vivir sin música? 
+
+
