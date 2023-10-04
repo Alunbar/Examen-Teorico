@@ -49,5 +49,5 @@ Mis primeros juegos fueron sobretodo juegos de estrategia en tiempo real que mi 
   + [Ikariam](https://gameforge.com/es-ES/play/ikariam/)
   + [Line Rider](https://www.linerider.com/)
     
-### Música.
+- ### Música.
   ¿Quién podría vivir sin música? 
