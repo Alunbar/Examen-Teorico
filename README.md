@@ -34,9 +34,9 @@ Mis primeros juegos fueron sobretodo juegos de estrategia en tiempo real que mi 
   Como cualquier otro niño con acceso al jóven internet, disfrutaba de numerosas páginas web dedicadas a minijuegos o directamente dedicadas a un único juego como:
 
   + [Habbo](https://es.wikipedia.org/wiki/Habbo), considero que es más un chat que un videojuego.
-  + [DOFUS](https://www.dofus.com/es/prehome).
-  + [Ikariam](https://gameforge.com/es-ES/play/ikariam/).
-  + [Line Rider](https://www.linerider.com/).
+  + [DOFUS](https://www.dofus.com/es/prehome)
+  + [Ikariam](https://gameforge.com/es-ES/play/ikariam/)
+  + [Line Rider](https://www.linerider.com/)
  
   + ### Música.
   ¿Quién podría vivir sin música? 
