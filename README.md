@@ -48,6 +48,6 @@ Mis primeros juegos fueron sobretodo juegos de estrategia en tiempo real que mi 
   + [DOFUS](https://www.dofus.com/es/prehome)
   + [Ikariam](https://gameforge.com/es-ES/play/ikariam/)
   + [Line Rider](https://www.linerider.com/)
-
+    
 ### Música.
   ¿Quién podría vivir sin música? 
