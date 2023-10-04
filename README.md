@@ -67,3 +67,16 @@ Me encanta la música, aunque he intentado en diferentes ocasiones diferentes in
 - Electrónica: [Drum & Bass](https://www.youtube.com/watch?v=btefjNXeaYg), [Hard-techno](https://youtu.be/kJtr_SqGerM?si=7GS-1xh-1Q7MlflC), [Hardcore](https://www.youtube.com/watch?v=2NifU4IPVSw), [Breakbeat](https://www.youtube.com/watch?v=zuoqBcXhsVU), [Makineta](https://www.youtube.com/watch?v=nzlx8DjL8qE), [Hardbass](https://www.youtube.com/watch?v=RBfrfSNX6ts).
 - Post-Punk [Ruso/Bieloruso](https://www.youtube.com/watch?v=HR5zpFs7YpY), [En español versionando reggaeton](https://youtu.be/owp7QP19cjI?si=DEar83Ayqr3P04qK).
 - Canción destacada: [bitingelbows - My woman](https://www.youtube.com/watch?v=sYKwU1E2U1I). 
+
+
+- ### Cine.
+Como ex-estudiante de cine debería decir unas palabras respecto al séptimo arte. Me gusta, si incluimos dentro del cine las series y animación, me encanta. Y es que una de mis cosas favoritas es compartir esa experiencia con los amigos y hablar sobre ello. Si bien no me considero un cinéfilo, en mi carrera aprendí muchísimo acerca del cine, su historia, su historia en España y de como se realiza a grandes rasgos. Al igual que aprendí a hacer guiones, tanto técnicos como literarios, y a traducir/subtitular películas. 
+
+- Sagas favoritas:
+  + Star Wars. Las originales y las de la precuela, las no me han gustado tanto y ni siquiera me las he visto todas. 
+  + Señor de los Anillos. Esta triología junto con la saga Star Wars marcó mi imaginario en la infancia.
+
+- Películas destacadas:
+  + Hardcore Henry, si eres un gran fan de los videojuegos de acción/shooters, es una película que deberías ver con tus amigos.
+  + El juego de Ender, es una de las películas de ciencia-ficción que más me fascinan, junto con la saga de libros que tengo pendiente de terminar.
+  + Kung Fury{
