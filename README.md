@@ -51,7 +51,7 @@ Mis primeros juegos fueron sobretodo juegos de estrategia en tiempo real que mi 
 
 + #### Mis videojuegos más recientes:
      + Cyberpunk 2077
-     + ^[Paradox](https://www.paradoxinteractive.com/our-games/discover). Soy un fanático de los juegos de estrategia desde pequeño y Paradox para mi ha supuesto un antes y un después. Gracias a ellos he disfrutado de juegos como: Crusaders Kings III, Stellaris, Hearts of Iron IV, Cities Skylines, Age of Wonders III y IV.
+     + [Paradox](https://www.paradoxinteractive.com/our-games/discover). Soy un fanático de los juegos de estrategia desde pequeño y Paradox para mi ha supuesto un antes y un después. Gracias a ellos he disfrutado de juegos como: Crusaders Kings III, Stellaris, Hearts of Iron IV, Cities Skylines, Age of Wonders III y IV.
      + Project Zomboid
      + RimWorld
      + Baldur's Gate 3
@@ -66,4 +66,4 @@ Me encanta la música, aunque he intentado en diferentes ocasiones diferentes in
 
 - Electrónica: [Drum & Bass](https://www.youtube.com/watch?v=btefjNXeaYg), [Hard-techno](https://youtu.be/kJtr_SqGerM?si=7GS-1xh-1Q7MlflC), [Hardcore](https://www.youtube.com/watch?v=2NifU4IPVSw), [Breakbeat](https://www.youtube.com/watch?v=zuoqBcXhsVU), [Makineta](https://www.youtube.com/watch?v=nzlx8DjL8qE), [Hardbass](https://www.youtube.com/watch?v=RBfrfSNX6ts).
 - Post-Punk [Ruso/Bieloruso](https://www.youtube.com/watch?v=HR5zpFs7YpY), [En español versionando reggaeton](https://youtu.be/owp7QP19cjI?si=DEar83Ayqr3P04qK).
-- 
+- Canción destacada: [bitingelbows - My woman](https://www.youtube.com/watch?v=sYKwU1E2U1I). 
