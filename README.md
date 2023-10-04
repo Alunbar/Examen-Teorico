@@ -6,7 +6,7 @@
 ![Mi perrita Happy](https://i.imgur.com/Iu1kT3Q.jpg)
 
 
-- Cita favorita:  _No tienes enemigos, nadie los tiene, ninguna persona merece que le hagan daño._
+- Cita favorita:  "_No tienes enemigos, nadie los tiene, ninguna persona merece que le hagan daño._"
 
 ---
 
